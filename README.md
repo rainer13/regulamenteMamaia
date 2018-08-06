@@ -1,0 +1,2 @@
+# regulamenteMamaia
+numele e suficient
